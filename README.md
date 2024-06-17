@@ -43,4 +43,3 @@ Answer the following questions based on your understanding of how to pitch a sof
 - Cite any references or sources you use in your answers.
 - Submit your completed assignment by 28th June 2024.
 
-
